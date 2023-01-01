@@ -1,1 +1,1 @@
-# stealer
+bacının amı
